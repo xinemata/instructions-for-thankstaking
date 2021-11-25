@@ -15,7 +15,7 @@ I’m definitely not the person to ask when it comes to having an answer, but I 
 1. While you’re cooking thanksgiving dinner, listen to [ThanksTaking or ThanksGiving?](https://open.spotify.com/episode/6dHjJNRXBJfVp4Ps1sNsKx?si=Nk8jaPlETCCOtHStGgFU-g), the real story of thanksgiving from the Indigenous perspective; [Stories from the Land - Melaw & Ethel “Moose Hide Camp”](https://soundcloud.com/indianandcowboy/stories-from-the-land-melaw), co-created by students at the Dechinta Bush University on the Dechinta Land. Or even better if you’re able to find a podcast episode that tells the stories of the Native Tribe that stewards the land you’re on. 
 ### During dinner
 1. Make land acknowledgment during the dinner. For guests who are zooming in from different locations, share https://native-land.ca/ so that they can find their Native Territories as well. [According to LSPIRG.org](https://static1.squarespace.com/static/5a73cec790bade60b93aeb1a/t/5cdb0e0bfb48a80001d6f4f7/1557859854237/Land+Acknowledgment+GRCA.pdf), it is important to express gratitude and honoring the Indigenous people living and working on the land from time immemorial, and it’s important to tell the stories of how the land was stolen by colonial settlers and to understand your place within that history. Questions to expand on after land acknowledgement:
-    1. How can you disrupt seltzer colonialism and center Indigenous perspectives?
+    1. How can you disrupt settler colonialism and center Indigenous perspectives?
     1. How can you challenge internalized colonial ideology?
     1. What stereotypes / beliefs about Native people do you or acquaintances perpetuate? 
 1. Action Items
